@@ -1,4 +1,0 @@
-# msk
-fertete
-eefrv
-ttr
